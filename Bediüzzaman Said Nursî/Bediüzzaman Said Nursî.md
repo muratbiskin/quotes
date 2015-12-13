@@ -1,0 +1,1 @@
+Bediüzzaman Said Nursî
